@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MathType for PC | MathType for Windows plugin with premium MathType for PC | MathType for Windows Plugin | toolboxes + interactive-notebooks. Featuring toolboxes
 
 
 
